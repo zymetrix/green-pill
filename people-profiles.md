@@ -24,7 +24,7 @@ Capture the people who materially affect or are affected by your decisions. Upda
 Conditions, communication style or type of challenge that brings out their best.
 
 **Reliability pattern**
-Where you can count on them unconditionally. Where they have surprised you negatively.
+Where you can count on them unconditionally.
 
 **Relationship dynamics with me**
 How they experience my leadership. Tension points, dependencies, blind spots in the relationship. This is the field most people skip and most need.
