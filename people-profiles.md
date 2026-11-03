@@ -20,9 +20,6 @@ Capture the people who materially affect or are affected by your decisions. Upda
 **Gaps and growth edges**
 - 
 
-**How they operate under pressure**
-One paragraph. Do they retreat, escalate, freeze, perform?
-
 **How to get the best from them**
 Conditions, communication style or type of challenge that brings out their best.
 
